@@ -1,0 +1,1 @@
+This is website was made for the apparel clothing line I started. Its inspired by Christian Religion and its a basic platform where potential customers can buy items of my brand they like. The basic inspiration of the brand is to use the stories in the bible and sxpress them on clothing as either basic "easter eggs" or to creatively tell its story.
